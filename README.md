@@ -1,7 +1,11 @@
-## Hi there 👋
+## Hi there# Am William. lm currently excavating the deepest mines of computer software in programming.Am looking forward in becoming one of the best in the programming world.
+Anyone can reach me trough my contact 
+0740675398 and am looking forward to collaborate with all of you guys 🤝.
+**basketball ball lover**
+
 ##william#
-<!--
-**wilxel/Wilxel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
+ilxel/Wilxel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
